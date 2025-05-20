@@ -79,3 +79,7 @@ Hdmoli：https://www.hdmoli.pro/
 Kimivod：https://kimivod.com/
 
 No视频：https://www.novipnoad.net/
+
+绿化动漫追剧软件
+
+https://pan.quark.cn/s/22d117f08fe8#/list/share
