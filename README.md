@@ -1,6 +1,6 @@
 #q群免费提供加速器vpn梯子
 
-电影网站（收集原因：无广，质好，少翻墙）
+电影网站（收集原因：无广，质好，少翻墙，有些失效了自己搜名字吧）
 
 555电影：https://wua9s6d3.com/
 
@@ -81,7 +81,3 @@ Hdmoli：https://www.hdmoli.pro/
 Kimivod：https://kimivod.com/
 
 No视频：https://www.novipnoad.net/
-
-绿化动漫追剧软件
-
-https://pan.quark.cn/s/22d117f08fe8#/list/share
